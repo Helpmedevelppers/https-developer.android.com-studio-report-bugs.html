@@ -30,3 +30,4 @@ I'm new to this developing coding thing but I no she's coded my apps ..596 apps 
 I GIVE YOU PERMISSIONS TO GO GO THROUGH MY DATA AND FIND WHAT YOU NEED  TO STOP HER!!THANK YOU GITHUB
 JUST DONT CURRUPT OR LOSE ANYTHING THANKS 
 
+ok now I just got an email saying she smart switched my data to a differently phone while i was asleep..now can we reverse this process and can we get this IT administrator off my phone.. I know no whst she's done thanks to an email wow... sad people are fake af!!! like what's the out come I did a bug scan woth developer mode aswell.. ubshould not have done this? indidnt even look at it or send it to anyone... but I messaged ceo of Samsung aswell trying to figure this broken hacking whores motives for me..  what do we do now 
